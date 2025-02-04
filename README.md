@@ -13,3 +13,7 @@ refrain from copying my ponies ; slight inspiration is okay. feel free to intera
 <p align="center">
 reading the rentries linked is advised. doomspear is ponytown-specific and chaoscontrol is my main.
 </p>
+
+<p align="center">
+i am usually off tab and tend to draw on the people around me's strawpages; my sign-off on drawings is -ultim. if you'd like to message me, please whisper or i most likely won't see it.
+</p>
