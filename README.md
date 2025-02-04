@@ -11,5 +11,5 @@ refrain from copying my ponies ; slight inspiration is okay. feel free to intera
 </p>
 
 <p align="center">
-reading the rentries linked is advised. chaosspear is ponytown-specific and chaoscontrol is my main.
+reading the rentries linked is advised. doomspear is ponytown-specific and chaoscontrol is my main.
 </p>
