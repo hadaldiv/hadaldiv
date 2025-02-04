@@ -1,5 +1,5 @@
 <p align="center">
-❛ my brightest star and deepest shame. ❜
+<ins>❛ my brightest star and deepest shame. ❜<ins>
 </p>
 
 <p align="center">
