@@ -15,5 +15,5 @@ reading the rentries linked is advised. doomspear is ponytown-specific and chaos
 </p>
 
 <p align="center">
-i am usually off tab and tend to draw on the people around me's strawpages; my sign-off on drawings is -ultim. if you'd like to message me, please whisper or i most likely won't see it.
+i am usually off tab and tend to draw on the people around me's strawpages; my sign-off on drawings is -ultim. if you'd like to talk to me, please whisper or i most likely won't see it.
 </p>
