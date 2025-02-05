@@ -17,3 +17,7 @@ reading the rentries linked is advised. doomspear is ponytown-specific and chaos
 <p align="center">
 i am usually off tab and tend to draw on the people around me's strawpages; my sign-off on drawings is -ultim. if you'd like to talk to me, please whisper or i most likely won't see it.
 </p>
+
+<p align="center">
+anyone is more than free to interact & i encourage it, but please be mindful that i am very anxious and have difficulty talking to new people. even so, i would love to make new friends.
+</p>
