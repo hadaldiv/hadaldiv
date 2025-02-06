@@ -19,5 +19,5 @@ i am usually off tab and tend to draw on the people around me's strawpages; my s
 </p>
 
 <p align="center">
-anyone is more than free to interact & i encourage it, but please be mindful that i am very anxious and have difficulty talking to new people. even so, i would love to make new friends.
+anyone is more than free to interact & i encourage it, but please be mindful that i am very anxious and have difficulty talking to new people. even so, i would love to make new friends. my discord is hadaldiv, but please let me know before sending a friend request or i will likely not accept.
 </p>
