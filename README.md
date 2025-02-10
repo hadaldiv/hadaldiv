@@ -21,3 +21,7 @@ i am usually off tab and tend to draw on the people around me's strawpages; my s
 <p align="center">
 anyone is more than free to interact & i encourage it, but please be mindful that i am very anxious and have difficulty talking to new people. even so, i would love to make new friends, especially if we share interests (namely sonic). hmu!
 </p>
+
+<p align="center">
+i'm usually around the sonic area & sitting with my friends (mentioned in my bio). zen is my number 1 opp
+</p>
