@@ -11,7 +11,7 @@ refrain from copying my ponies ; slight inspiration is okay. feel free to intera
 </p>
 
 <p align="center">
-reading the rentries linked is advised. doomspear is ponytown-specific and chaoscontrol is my main.
+reading the rentries linked at the bottom is advised, and sign my atabook if you'd like to.
 </p>
 
 <p align="center">
@@ -23,5 +23,7 @@ anyone is more than free to interact & i encourage it, but please be mindful tha
 </p>
 
 <p align="center">
-i'm usually around the sonic area & sitting with my friends (mentioned in my bio). zen is my number 1 opp
+i'm usually around the sonic area & sitting with my friends (mentioned in my bio). zen is my number 1 opp (ily /p)
 </p>
+
+<p align="center"> <a href="https://rentry.co/chaoscontrol">main rentry</a>　　<a href="https://rentry.co/doomspear">ponytown rentry</a>　　<a href="https://ultim.atabook.org">atabook</a> <br> </p>
