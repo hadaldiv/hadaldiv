@@ -26,4 +26,4 @@ anyone is more than free to interact & i encourage it, but please be mindful tha
 i'm usually around the sonic area & sitting with my friends (mentioned in my bio). zen is my number 1 opp (ily /p)
 </p>
 
-<p align="center"> <a href="https://rentry.co/chaoscontrol">main rentry</a>　　<a href="https://rentry.co/doomspear">ponytown rentry</a>　　<a href="https://github.com/hadaldiv/ultim">name tag info</a> <br> </p>
+<p align="center"> <a href="https://rentry.co/chaoscontrol">main rentry</a>　　<a href="https://rentry.co/doomspear">ponytown rentry</a>　　<a href="https://ultim.straw.page">strawpage</a> <br> </p>
