@@ -9,7 +9,7 @@
 </p>
 
 <p align="center"> <a href="https://rentry.co/chaoscontrol">main rentry</a>　　<a href="https://rentry.co/ultim">ponytown rentry</a> <br> </p>
-<p align="center"> <a href="https://pronouns.cc@ultim">pronouns.cc</a>　　<a href="https://ultim.straw.page">strawpage</a> <br> </p>
+<p align="center"> <a href="https://pronouns.cc/@ultim">pronouns.cc</a>　　<a href="https://ultim.straw.page">strawpage</a> <br> </p>
 
 <p align="center">
 art credit - yumlow220 (twt), cawffeejelly (twt)
