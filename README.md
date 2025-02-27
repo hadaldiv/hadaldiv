@@ -12,6 +12,14 @@
 <p align="center"> <a href="https://pronouns.cc/@ultim">pronouns.cc</a>　　<a href="https://ultim.straw.page">strawpage</a> <br> </p>
 
 <p align="center">
+hadaldiv @ discord, feel free to add me but please provide a heads-up beforehand or i likely won't accept
+</p>
+
+<p align="center">
+⠀
+</p>
+
+<p align="center">
 art credit - yumlow220 (twt), cawffeejelly (twt)
 </p>
     
